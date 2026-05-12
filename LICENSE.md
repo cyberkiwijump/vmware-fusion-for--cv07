@@ -1,4 +1,4 @@
-# 
+# rare VMware Fusion for macOS Module | VM-management + file-sharing offers the most advanced VMware Fusion for macOS module, with VM-management and file-sharing. Ideal for macOS
 
 
 
